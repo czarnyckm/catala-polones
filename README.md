@@ -1,9 +1,9 @@
 # catala-polones
 CA-PL català polonès / kataloński polski
 
+Aprèn català o polonès.
  
 Nauka katalońskiego lub polskiego.
-Aprèn català o polonès.
 
 https://ankiweb.net/shared/info/1335056171
 
