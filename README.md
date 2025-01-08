@@ -5,5 +5,4 @@ Aprèn català o polonès.
  
 Nauka katalońskiego lub polskiego.
 
-https://ankiweb.net/shared/info/1335056171
-
+https://ankiweb.net/shared/info/1707078450
